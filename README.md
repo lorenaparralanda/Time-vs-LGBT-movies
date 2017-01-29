@@ -1,1 +1,1 @@
-# Time-vs-LGBT-movies
+# Time vs LGBT movies
